@@ -11,7 +11,7 @@
 
 # Download for free (3-day trial)
 
-▶︎ https://ensili.co/download/tidier/tidier-1.5.zip
+▶︎ https://ensili.co/download/tidier/tidier-1.6.zip
 
 # Official Website
 
